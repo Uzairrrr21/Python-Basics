@@ -22,6 +22,6 @@ I'm excited about the possibility of contributing to your team and making a diff
 
 ## Let's Connect!
 
-If you're interested in collaborating or have any questions, feel free to reach out to me. You can connect with me via [LinkedIn](Your LinkedIn Profile URL) or [Twitter](Your Twitter Profile URL).
+If you're interested in collaborating or have any questions, feel free to reach out to me. You can connect with me via [LinkedIn](https://www.linkedin.com/in/uzair-sohail-5b2507303/).
 
 Let's build something amazing together! 🚀
